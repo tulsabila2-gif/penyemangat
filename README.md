@@ -1,0 +1,2 @@
+# penyemangat
+buatt kamuuu
